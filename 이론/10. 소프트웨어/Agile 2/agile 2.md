@@ -1,0 +1,1 @@
+https://agile2.net/agile-2/the-values-and-principles-of-agile-2/
